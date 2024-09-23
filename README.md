@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Tumifadare
-- 👀 I’m interested in Data Science/ Engineering 
+- 👀 I’m interested in Data Science and product management  
 - 📫 How to reach me: tumifadare@gmail.com
 - 😄 Pronouns: She/Her
 - ⚡ Fun fact: I make Youtube Videos
