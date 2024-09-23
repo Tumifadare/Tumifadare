@@ -1,6 +1,7 @@
 - 👋 Hi, I’m @Tumifadare
 - 👀 I’m interested in Data Science and product management  
 - 📫 How to reach me: tumifadare@gmail.com
+- LinkedIn: https://www.linkedin.com/in/oluwatunmise-fadare/
 - 😄 Pronouns: She/Her
 - ⚡ Fun fact: I make Youtube Videos
 
